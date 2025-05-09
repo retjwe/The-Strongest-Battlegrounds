@@ -1,6 +1,6 @@
 # The Strongest Battlegrounds Script – Unlock Ultimate Power and Gamepass Features for Free
 
-**The Strongest Battlegrounds Script - Ultimate Roblox Script for Mastery**
+# **The Strongest Battlegrounds Script - Ultimate Roblox Script for Mastery**
 
 Welcome to the *The Strongest Battlegrounds Script*, your go-to resource for gaining an advantage in this action-packed game. This script unlocks powerful features that enhance your gameplay, making you the top contender in every battle.
 
